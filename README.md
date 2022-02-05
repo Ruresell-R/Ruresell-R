@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ruresell-Dev! I junior front-end devoloper and discord js devoloper
+- ✨ My web-site is https://ruresell.me
+- 🇷🇺 My country - Russia 
