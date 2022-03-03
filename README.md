@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Ruresell-Dev! I junior front-end devoloper and discord js devoloper
 - ✨ My web-site is https://ruresell.me (New landing is loading...)
-- 🇷🇺 My country - Russia 
+- 🇺🇦 I am for peace
