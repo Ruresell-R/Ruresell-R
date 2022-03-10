@@ -1,4 +1,3 @@
-![Header](https://imgur.com/6B5Diiz)
 ## Hello! I'am Ruresell, i beginner JavaScript and other languages developer.
 
 ### At this moment, i learning several programming languages such as `JavaScript`,`CSS 3`, `HTML 5` and other.
