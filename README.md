@@ -4,4 +4,5 @@
 ### Now i live im Moscow, Russia.
 ### By the way, u can contact with me in [Telegram](http://t.me/Ruresell_R).
 ### In conclusion, I want to say: 
+🇺🇦 I'am for peace
 >"You have to be strong, otherwise why would you be?"
